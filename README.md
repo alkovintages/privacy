@@ -54,4 +54,4 @@ We may update this Privacy Policy to reflect changes to our information practice
 
 7. Contact Us
 
-If you have any questions or concerns about this Privacy Policy or our data practices, please contact us at charity.mbisi@axelera.io
+If you have any questions or concerns about this Privacy Policy or our data practices, please contact us at info@imemo.co.tz
